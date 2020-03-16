@@ -1,1 +1,1 @@
-# amertaydin.github.io
+# amertaydin
